@@ -1,1 +1,1 @@
-Junior at Mission San Jose High School
+Senior at Mission San Jose High School
